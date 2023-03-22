@@ -4,3 +4,4 @@
 
 
 --lemme drive da bus
+-- XIKARA IS BLIIND!
