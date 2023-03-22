@@ -4,4 +4,4 @@
 
 
 --lemme drive da bus
--- XIKARA IS BLIIND!
+-- "yo remove the brain"
